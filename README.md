@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm hyunjjingjjing
+I'm jjing
 ### 🌱 I’m currently learning ...
 Media Communication, Journalism
 ### 💬 Follow me
